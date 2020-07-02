@@ -1,1 +1,1 @@
-# site under construction
+# site currently under construction
